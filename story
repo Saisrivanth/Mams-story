@@ -14,3 +14,5 @@ now lion and the monkey became friends
 now i dont know what else to continue the story because any how monkey helped lion and both are happy
 
 END OF THE STORY BYE! BYE!
+
+written by sumithra mam...
